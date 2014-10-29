@@ -5,7 +5,7 @@ Zeus CNC router
 
 ![Zeus](http://cdn2.bigcommerce.com/n-ou1isn/hyslicv8/products/101/images/405/6_website__94029.1409712454.1280.1280.png?c=2)
 
-The Zeus CNC Kit comes with with everything you need to get started with 3D CNC carving, including tools. After you assemble the Full Kit you will have a working machine that can carve parts. If you want a machine that will meet all your 3D carving needs after assembly. This kit is the ideal macine for hobbyists, businesses, makerspaces and schools
+The Zeus CNC Kit comes with with everything you need to get started with 3D CNC carving, including tools. After you assemble the Full Kit you will have a working machine that can carve parts. This kit is the ideal macine for hobbyists, businesses, makerspaces and schools
 
 See these links for more details.
 
